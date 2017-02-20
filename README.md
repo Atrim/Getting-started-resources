@@ -1,1 +1,2 @@
-# Getting-started-resources
+# Best getting-started-resources 
+Learning something new is scary. For all of us the biggest issue with picking up a new skill is not knowing where to start. It's often useful if we have a Plan of Action, a Blueprint , a Roadmap. It makes our journey towards that new step much easier. But you don't have to worry about that now we have found the best resources on the Internet, filtering out the bad ones.
